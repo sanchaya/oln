@@ -30,5 +30,5 @@ The Digital Kannada Books website is licensed under the MIT license: http://www.
 Each book has its own licence, see book homepage.
 
 ## About us
-# gtn
+# apmalathi
 # apmalathi
