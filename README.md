@@ -1,6 +1,4 @@
 # ಓ. ಎಲ್. ನಾಗಭೂಷಣ ಸ್ವಾಮಿ (ಓ. ಎಲ್. ಎನ್) Digital Kannada Books
-
-ಓ. ಎಲ್. ನಾಗಭೂಷಣ ಸ್ವಾಮಿ (ಓ. ಎಲ್. ಎನ್) Digital Kannada Books is a showcase of the #ServantsOfKnowledge project works @Sanchaya & @SanchiFoundation
 =======
 
 
